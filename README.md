@@ -1,2 +1,0 @@
-# dimo2
-wasslatv
